@@ -4,4 +4,4 @@ Feel free to contact me at
 
 king1303@umn.edu 
 
-https://www.linkedin.com/in/logan-king-290aa81b9/
+https://www.linkedin.com/in/king-logan/
